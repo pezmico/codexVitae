@@ -33,17 +33,30 @@ Things I've learned and want to remind myself of every year on my birthday (July
 5. Review/update this list
 
 ##Goals
+
+###Professional
 * Set up Master Plan.
 * A picture a day
 * Film docos and travel with them
+
+###Financial
+* $10,000 emergency fund
+
+###Personal
+* Go to Japan
 
 ##Interests
 * Guitar
 * Photography
 * Diving
 * Documentary
+* Travelling
 
 ##People
+* Familia
+* Flatmates
+* Amigos
+* Trabajo
 
 ##Beliefs
 ### On Life
