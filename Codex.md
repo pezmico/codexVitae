@@ -36,14 +36,17 @@ Things I've learned and want to remind myself of every year on my birthday (July
 
 ###Professional
 * Set up Master Plan.
-* A picture a day
+* A picture a day, do more camera work
 * Film docos and travel with them
 
 ###Financial
 * $10,000 emergency fund
 
 ###Personal
+* Dive more
+* Finish Honours at Auckland Uni.
 * Go to Japan
+* Go to Colombia see Family
 
 ##Interests
 * Guitar
@@ -61,7 +64,10 @@ Things I've learned and want to remind myself of every year on my birthday (July
 ##Beliefs
 ### On Life
 1. The most perfect moments at the end is the goal.
-2. 
+2. There is no destiny or fate. Everything is random and we choos to give it meaning (or not)
+
+### On Love
+1. Love exists and it is beautiful and powerful.
 
 ##Chaos Monkey Tricks
 
@@ -71,10 +77,12 @@ Things I've learned and want to remind myself of every year on my birthday (July
 ### 2014: ~~~~~~~~~~~~
 
 ##### December 1st 2014:
-*Summary:* Example summary of what happened in the month
+*Summary:* Ending the year with a lot of questions and wondering what the next steps are. What do I want and where do I want to be?
+
+*Mode:* Plan, conclude, organize.
 
 *Weight:* 72
 
-*Outcome of previous goal:* 
+*Outcome of previous goal:* N/A
 
 *New goal:* Organize a plan and find out what I am doing for it.
