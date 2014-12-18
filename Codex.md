@@ -12,7 +12,7 @@ Things I’d like to have primed in my brain every morning. This is stuff curren
 1. **Live perfect moments:** With myself, with other people, and with my interests.
 2. **Meditate:** Ten minutes to be with yourself
 3. **Thing a day project:** What is today's thing? 
-4. **Things to sort out today**
+4. **Things to sort out today** Pending stuff, documents, boring things that are necessary.
 5. Review/update this list
 
 ## Review Every Month 
@@ -47,6 +47,8 @@ Things I've learned and want to remind myself of every year on my birthday (July
 * Finish Honours at Auckland Uni.
 * Go to Japan
 * Go to Colombia see Family
+* Learn french and/or chinese
+* swim accross the Auckland harbour
 
 ##Interests
 * Guitar
