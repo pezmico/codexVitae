@@ -13,7 +13,8 @@ Things I’d like to have primed in my brain every morning. This is stuff curren
 2. **Meditate:** Ten minutes to be with yourself
 3. **Thing a day project:** What is today's thing? 
 4. **Things to sort out today** Pending stuff, documents, boring things that are necessary.
-5. Review/update this list
+5. **Body and health** Do a handstand for at least a minute.
+6. Review/update this list
 
 ## Review Every Month 
 Things I’d like to check in on the 1st of every month.
@@ -68,8 +69,13 @@ Things I've learned and want to remind myself of every year on my birthday (July
 1. The most perfect moments at the end is the goal.
 2. There is no destiny or fate. Everything is random and we choos to give it meaning (or not)
 
+### On People
+1. Humans are all crazy. There is no such thing as normal.
+2. What people say they want is very often not the same as what they really want.
+
 ### On Love
 1. Love exists and it is beautiful and powerful.
+2. It is also quite rare.
 
 ##Chaos Monkey Tricks
 
