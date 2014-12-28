@@ -42,6 +42,7 @@ Things I've learned and want to remind myself of every year on my birthday (July
 
 ###Financial
 * $10,000 emergency fund
+* Independence: own business?
 
 ###Personal
 * Dive more
@@ -50,6 +51,7 @@ Things I've learned and want to remind myself of every year on my birthday (July
 * Go to Colombia see Family
 * Learn french and/or chinese
 * swim accross the Auckland harbour
+* Love.
 
 ##Interests
 * Guitar
@@ -78,6 +80,11 @@ Things I've learned and want to remind myself of every year on my birthday (July
 2. It is also quite rare.
 
 ##Chaos Monkey Tricks
+
+##Personal Canon
+* If you take the jump, ground will show up.
+* There is always something positive. As sad as it may seem.
+* Do not feel sorry for yourself.
 
 
 # Monthly Reports
