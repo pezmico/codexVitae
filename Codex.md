@@ -13,7 +13,7 @@ Things I’d like to have primed in my brain every morning. This is stuff curren
 2. **Meditate:** Ten minutes to be with yourself
 3. **Thing a day project:** What is today's thing? 
 4. **Things to sort out today** Pending stuff, documents, boring things that are necessary.
-5. **Body and health** Do a handstand for at least a minute.
+5. **Body and health** Do a handstand for at least a minute. Stretch.
 6. Review/update this list
 
 ## Review Every Month 
@@ -68,10 +68,18 @@ Things I've learned and want to remind myself of every year on my birthday (July
 * Amigos
 * Trabajo
 
+##Lexicon
+* Live like a Hydra  https://medium.com/@buster/live-like-a-hydra-c02337782a89
+
+* Wabi Sabi: The Art of Imperfection
+Wabi-sabi (侘寂?) represents a comprehensive Japanese world view or aesthetic centered on the acceptance of transience and imperfection. The aesthetic is sometimes described as one of beauty that is "imperfect, impermanent, and incomplete".[1] It is a concept derived from the Buddhist teaching of the three marks of existence (三法印 sanbōin?), specifically impermanence (無常 mujō?), the other two being suffering (苦 ku?) and emptiness or absence of self-nature (空 kū?).
+Characteristics of the wabi-sabi aesthetic include asymmetry, asperity (roughness or irregularity), simplicity, economy, austerity, modesty, intimacy, and appreciation of the ingenuous integrity of natural objects and processes.
+
 ##Beliefs
 ### On Life
 1. Having lived the most perfect moments by the end is the goal.
-2. There is no destiny or fate. Everything is random and we choos to give it meaning (or not)
+2. There is no destiny or fate. Everything is random and we choose to give it meaning (or not)
+3. Knowledge is the greatest gift. There is no Knowledge that is not power.
 
 ### On People
 1. Humans are all crazy. There is no such thing as normal.
@@ -103,7 +111,7 @@ Things I've learned and want to remind myself of every year on my birthday (July
 
 *Outcome of previous goal:* Partial hit. Plans are not very clear yet but they taking shape.
 
-*New goal:* Finish clearing up goals. Set up specific actions to start advancing to them. Daily meditation and handstand.
+*New goal:* Finish clearing up goals. Set up specific actions to start advancing to them. Daily meditation and handstand. Join Dive club.
 
 *Perfect moments:* Colombian xmas party, New Years fireworks at the viaduct w/ Oce an Chris and Dique, BBQ at Waiheke, swimming in the beach.
 
