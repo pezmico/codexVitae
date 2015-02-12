@@ -40,6 +40,7 @@ Things I've learned and want to remind myself of every year on my birthday (July
 * A picture a day, do more camera work
 * Film docos and travel with them
 
+
 ###Financial
 * $10,000 emergency fund
 * Independence: own business?
@@ -50,7 +51,6 @@ Things I've learned and want to remind myself of every year on my birthday (July
 * Go to Japan
 * Go to Colombia see Family
 * Learn french and/or chinese
-* Swim across the Auckland harbour
 * Love.
 
 ##Interests
@@ -69,7 +69,9 @@ Things I've learned and want to remind myself of every year on my birthday (July
 * Trabajo
 
 ##Lexicon
+
 * Live like a Hydra  https://medium.com/@buster/live-like-a-hydra-c02337782a89
+* Hierarchy of goals http://lifehacker.com/5912971/focus-your-ambitions-with-the-lifehacker-hierarchy-of-goals
 
 * Wabi Sabi: The Art of Imperfection
 Wabi-sabi (侘寂?) represents a comprehensive Japanese world view or aesthetic centered on the acceptance of transience and imperfection. The aesthetic is sometimes described as one of beauty that is "imperfect, impermanent, and incomplete".[1] It is a concept derived from the Buddhist teaching of the three marks of existence (三法印 sanbōin?), specifically impermanence (無常 mujō?), the other two being suffering (苦 ku?) and emptiness or absence of self-nature (空 kū?).
@@ -80,6 +82,7 @@ Characteristics of the wabi-sabi aesthetic include asymmetry, asperity (roughnes
 1. Having lived the most perfect moments by the end is the goal.
 2. There is no destiny or fate. Everything is random and we choose to give it meaning (or not)
 3. Knowledge is the greatest gift. There is no Knowledge that is not power.
+4. Your problems, even if little, are yours to care about and solve.
 
 ### On People
 1. Humans are all crazy. There is no such thing as normal.
@@ -91,17 +94,33 @@ Characteristics of the wabi-sabi aesthetic include asymmetry, asperity (roughnes
 2. It is also quite rare.
 
 ##Chaos Monkey Tricks
+* Changing schedules affects me a lot. I need different modes for different schedules aka routines. Shifting from Paul Henry show (night) to Firstline completely changed my routine and thus my scheduling.
 
 ##Personal Canon
 * Be who you are, but try to improve it every chance you get.
 * If you take the jump, ground will show up.
 * There is always something positive. As sad as it may seem.
 * Do not feel sorry for yourself.
+* Say yes every time I can. Specially if it could lead to a new adventure.
 
 
 # Monthly Reports
 
-### 2015: ~~~~~~~~~~~~
+### 2015: -~~~~~~~~~~~
+##### February 1st 2015:
+*Summary:* Busy beginning of the year. Friends leaving, new activities and interests appearing. Old ones resurfacing. Wounds apparently healing well.
+  
+*Mode:*  Do-create. Earlybird. 
+
+*Weight:* 73
+
+*Outcome of previous goal:* Fail. Still no clear mission objectives. Better than last month, no doubt. But not quite clear on them yet. Joined Dive club though. Meditation and handstands are not quite daily. Still need specific actions.
+
+*New goal:* Create and project a confident persona. Finish the Goal pyramid thingie. Do the capoeira promo vid. Write new scripts. Daily meditation and handstand.
+
+*Perfect moments:* Flying to Kaitaia with Colette. Capoeira camp. Kitesurf en Te Atatu. Diving day en poor knights. Despedida y dia de compras con Nibeth. Snorkeling en Reotahi. Free Auckland walking tour con Oscar.
+
+
 ##### January 1st 2015:
 *Summary:*  So 2014 is gone. December was fun, even if I didn't expect it to. Some goals are becoming clearer but still need to make them concrete and actionable.
 
