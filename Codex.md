@@ -13,7 +13,7 @@ Things I’d like to have primed in my brain every morning. This is stuff curren
 2. **Meditate:** Ten minutes to be with yourself
 3. **Thing a day project:** What is today's thing? 
 4. **Things to sort out today** Pending stuff, documents, boring things that are necessary.
-5. **Body and health** Do a handstand for at least a minute. Stretch.
+5. **Body and health** Exercise. Do a handstand for at least a minute. Stretch. Meet Fitbit goals until weight is as desired!
 6. Review/update this list
 
 ## Review Every Month 
@@ -42,29 +42,32 @@ Things I've learned and want to remind myself of every year on my birthday (July
 
 
 ###Financial
-* $10,000 emergency fund
+* Match Kiwisaver fund
 * Independence: own business?
+* Get Bitcoin
 
 ###Personal
 * Dive more
-* Finish Honours at Auckland Uni.
-* Go to Japan
+* Finish Masters at Auckland Uni.
+* Go to Japan (with Haru?)
 * Go to Colombia see Family
 * Learn french and/or chinese
-* Love.
+* Love
 
 ##Interests
 * Guitar
 * Photography
 * Diving
 * Documentary
-* Travelling
+* Traveling
+* Reading
 * Kitesurfing
 * Capoeira
 
 ##People
 * Familia
 * Flatmates
+* Haru
 * Amigos
 * Trabajo
 
@@ -88,10 +91,12 @@ Characteristics of the wabi-sabi aesthetic include asymmetry, asperity (roughnes
 1. Humans are all crazy. There is no such thing as normal.
 2. What people say they want is very often not the same as what they really want.
 3. Nobody cares as much as they say they do.
+4. Always be nice. You never know how the world looks from someone else's eyes.
 
 ### On Love
 1. Love exists and it is beautiful and powerful.
 2. It is also quite rare.
+3. You have to choose love everyday.
 
 ##Chaos Monkey Tricks
 * Changing schedules affects me a lot. I need different modes for different schedules aka routines. Shifting from Paul Henry show (night) to Firstline completely changed my routine and thus my scheduling.
@@ -102,13 +107,28 @@ Characteristics of the wabi-sabi aesthetic include asymmetry, asperity (roughnes
 * There is always something positive. As sad as it may seem.
 * Do not feel sorry for yourself.
 * Say yes every time I can. Specially if it could lead to a new adventure.
-
+* Be brave. Be true. Be fun.
 
 # Monthly Reports
 
+### 2016: -~~~~~~~~~~~
+#### January 11 2016:
+*Summary:* Picking up again this idea. Dropped it for a while but it is very pleasing to see I have accomplished quite a few of my objectives in the list. Things have changed a lot though. There is a new love, and lots of plans of things to do. Coming up first is a trip with Haru chan, going to pick up the prize that 55 got me. Last year was exciting, did another documentary and travelled to Thailand and Indonesia (Birthday was in Khao Lak). Met loads of people and did many things. Financial goal was attained. Let's see what this year brings.
+
+*Mode:* Enjoy, plan, organise.
+
+*Weight:* 79 (Thanks Thailand)
+
+*Outcome of previous goal:* Mixed. A few clear wins. Emotionally and financially stable. Job is looking good. Proud of the Bule/Farang doco. Gained too much weight though.
+
+*New goal:*  Lose weight. Send Bule to festivals.Setup freeview at home. Travel to Aussie. Get Haru's visa so she can stay.
+
+*Perfect moments:* Meeting Haru, snowboarding in Ruapehu, basically everyday in Indonesia and Thailand, Ahipara trip with flatmates, Xmas dinner with flatties and friends, New Year's Eve party and drunkenness, New Year's Eve Beach picnic with the flatties.
+ 
+
 ### 2015: -~~~~~~~~~~~
 ##### February 1st 2015:
-*Summary:* Busy beginning of the year. Friends leaving, new activities and interests appearing. Old ones resurfacing. Wounds apparently healing well.
+*Summary:* Busy beginning of the year. Friends leaving, new activities and interests appearing. Old ones resurfacing. Wounds apparently healing well. Need to decide on kitesurf. Spent a lot of money but got dentist done and new passport and paid uni and had adventures. So far, doing good. Want to get some concrete projects and move forward on them. Excited about participating on a film festival in Aussie with 55.
   
 *Mode:*  Do-create. Earlybird. 
 
