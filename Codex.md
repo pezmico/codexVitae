@@ -39,12 +39,13 @@ Things I've learned and want to remind myself of every year on my birthday (July
 * Set up Master Plan.
 * A picture a day, do more camera work
 * Film docos and travel with them
-
+* sort out being a diving instructor in NZ
+ 
 
 ###Financial
 * Match Kiwisaver fund
-* Independence: own business?
-* Get Bitcoin
+* Independence: own business? (airbnb, replenishable-nopack shampoo, upwork?, doco company)
+* Get in Bitcoin
 
 ###Personal
 * Dive more
@@ -112,6 +113,20 @@ Characteristics of the wabi-sabi aesthetic include asymmetry, asperity (roughnes
 # Monthly Reports
 
 ### 2016: -~~~~~~~~~~~
+
+#### March 17 2016:
+*Summary:* Recently returned from Aussie with Haru. Started back in Uni for the final year, getting ready to graduate from Bachelor honours. Work has changed a lot, new studio and offices, lots of people leaving. Not so many new ones in. I am starting to feel like a change is due. Maybe new house would be enough, but also maybe new job would be needed... have to think about this. Right now the priority is getting the masters doco sorted and going to Japan with Haru. Kindda want to live in Melbourne.
+
+*Mode:* Write, execute, create
+
+*Weight:* 77
+
+*Outcome of previous goal:* Positive. Aussie was awesome, Haru got her new visa (one more year), still need to find festivals for Bule, I'm exercising lots and feeling better about it. 
+*New goal:*  Go to Japan. Lose weight. Send Bule to festivals. Update reel, website, business card.
+
+*Perfect moments:* Most of the Aussie trip, Haru's birthday celebration.
+
+
 #### January 11 2016:
 *Summary:* Picking up again this idea. Dropped it for a while but it is very pleasing to see I have accomplished quite a few of my objectives in the list. Things have changed a lot though. There is a new love, and lots of plans of things to do. Coming up first is a trip with Haru chan, going to pick up the prize that 55 got me. Last year was exciting, did another documentary and travelled to Thailand and Indonesia (Birthday was in Khao Lak). Met loads of people and did many things. Financial goal was attained. Let's see what this year brings.
 
